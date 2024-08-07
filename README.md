@@ -9,3 +9,5 @@
 ### Você pode entrar em contanto comigo 📫
 
 @silva.andrade.thomas@escola.pr.gov.br
+
+![](https://media1.tenor.com/m/b1EnVY2wB8wAAAAd/basketball-crossover.gif)
