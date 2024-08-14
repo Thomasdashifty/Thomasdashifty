@@ -10,4 +10,4 @@
 
 @silva.andrade.thomas@escola.pr.gov.br
 
-![](https://media.tenor.com/VBExRKbUPE8AAAAM/basketball-grandma.gif)
+![](https://media1.tenor.com/m/UsRPDe_HFGUAAAAd/kyrie-irving-basketball.gif)
